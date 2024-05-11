@@ -1,4 +1,4 @@
-# Rules for Balatro Game World Records Submissions
+# Rules for Balatro World Records Submissions
 
 To ensure fairness and integrity in run submissions, users must adhere to the following rules:
 
